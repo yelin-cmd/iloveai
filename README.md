@@ -1,0 +1,2 @@
+# iloveai
+for everthing
